@@ -1,1 +1,0 @@
-# Panjari-Pathak
